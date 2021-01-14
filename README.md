@@ -1,5 +1,5 @@
 ### Glad to see you here 😄
-I'm a 3rd year student pursuing Bachelor's in Computer Science 🎓 from Kalinga Institute Of Industrial Technology 🏛. . Apart from that I am interested in graphic designing✨. I'm currently into Web Designing 💻🕸️ 
+I'm a 3rd year student pursuing Bachelor's in Computer Science 🎓 from Kalinga Institute Of Industrial Technology 🏛.Apart from that I am interested in graphic designing✨. I'm currently into Web Designing 💻🕸️ 
 
 ### Talking About Personal Stuffs
 
